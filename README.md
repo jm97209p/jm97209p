@@ -8,7 +8,7 @@ I'm an IT professional based in the **Sacramento / Stockton, CA area** with a Ma
 
 I'm actively looking for my next opportunity in IT, technical support, or related roles. If you're hiring or know someone who is — let's connect!
 
-📫 **[LinkedIn](https://www.linkedin.com/in/jm97209p)**
+📫 **[LinkedIn](https://www.linkedin.com/in/jasmine-m-463093159?utm_source=share_via&utm_content=profile&utm_medium=member_ios)**
 
 ---
 
